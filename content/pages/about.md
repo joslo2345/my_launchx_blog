@@ -9,13 +9,10 @@ menu:
 
 Hola, aquí vas a leer un poco sobre mi 🤩
 
-> Excidit gente, si orat suo quaeque dura Calydon nata? Pars auro post stetit
-> adfusique imis amplexus. Agmina per fabricator
-> mittere Erymanthon habetque tot.
+> Un gusto mi nombre es Jose soy un ser vivo basado en carbono y un monto de moleculas organicas.
+> La ciencia es mi más grande pasión así como lo es aprender.
+> 
 
-**Cineres Nile ipsa** origine discurrunt adest Unde, et quem clausus, imo,
-virens quoque tales, potuit. Ingentes insilit corpore nutricis praebebat roganti
-licuit. Denique a vestros adulantum in bella lina parte et arte generi di igitur
-quis, digitis pedes. Cum resonant tamen, namque in anxia. Non nostri trahens
-ancora.
-
+**Science User** (gran referencia si la captas)
+Siempre ha sido un gusto para mi aprender sobre lo que este mundo tiene para mostrarnos y así como el conocimiento que nuestros antepasados han creado para que nosotros, sus descendientes, ampliemos ese conocimiento.
+Mucho tiene que ver en el mundo del software, siempr estamos actulizando nuestras tecnologías, creando nuevas si los problemas los requieren y como no dando pequeños pasos que sumados nos dan grandes saltos.
